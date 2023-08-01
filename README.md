@@ -1,2 +1,2 @@
 # latihan
-halo guys
+halo guys welcome
